@@ -1,5 +1,5 @@
 # Nuestra Kultura
----
+
 ## Transformar vidas es lo nuestro, no lo hace la academia, lo hace la comunidad.
 
 1. La lealtad, humildad, responsabilidad, honestidad y compromiso son ejercidos y respetados en todo momento.
